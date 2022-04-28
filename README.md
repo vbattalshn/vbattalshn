@@ -1,1 +1,1 @@
-# Hello, I'm Battal Şahin 🖐
+# Hello, I'm Battal Şahin 👋
